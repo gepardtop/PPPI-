@@ -1,1 +1,1 @@
-# PPPI-
+# PPPI-CHESS
